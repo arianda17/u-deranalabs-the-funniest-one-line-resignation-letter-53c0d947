@@ -1,0 +1,1 @@
+I quit — my houseplants have better work-life balance and they don't do standups
